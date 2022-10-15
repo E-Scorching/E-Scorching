@@ -1,2 +1,1 @@
-Sometimes when I'm bored as fuck I create code sometimes. But then, no one really cares.
-Goodluck trying to find them! They're all fucking outdated!!!
+Sometimes when I'm bored as fuck I'll take a year to create. But in reality, no one cares.
